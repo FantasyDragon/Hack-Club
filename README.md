@@ -2,6 +2,7 @@
 For any hack club projects/ideas
 
 School rules apply which means no:
+
 Bullying       
 Too much foul language    
 inappropriate topics
